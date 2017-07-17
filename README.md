@@ -1,5 +1,5 @@
-ﷲ 
-IBEI
-Instituto Brasileiro de Estudos Islamicos. 
+ﷲ  
+IBEI - 
+Instituto Brasileiro de Estudos Islâmicos, Pensamento Islâmico 
 
 
